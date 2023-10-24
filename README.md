@@ -1,1 +1,1 @@
-# Aneotic-s-Modpack
+# Aneotic's Modpack
